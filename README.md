@@ -3,8 +3,8 @@
 <img src="https://file.garden/aW0e-ZgoXg_NmNlf/kniving.png" height="250px"> 
 
 <p align="center"
- 
-⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐
+
+ <p style="color:red;">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</p>
 
  <p align="center"
   
