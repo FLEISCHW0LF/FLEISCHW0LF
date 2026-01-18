@@ -8,7 +8,7 @@
 
  <p align="center">
   
-<img src="https://file.garden/aW0e-ZgoXg_NmNlf/kniving.png" height="150px"> 
+<img src="https://file.garden/aW0e-ZgoXg_NmNlf/kniving.png" height="250px"> 
 
 
 
