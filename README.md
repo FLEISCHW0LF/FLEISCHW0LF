@@ -1,5 +1,9 @@
-HAVE YOU EVER SLASHED A SOUL TO RIBBONS? 
-HAVE YOU EVER BELIEVED IN A MIRAGE? 
+<p align="center">
+⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? 
+⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? 
+
+<img src=(https://file.garden/aW0e-ZgoXg_NmNlf/kniving.png)>
+
 
 
  ☆ My ears are ringing with a sound
@@ -26,3 +30,4 @@ HAVE YOU EVER BELIEVED IN A MIRAGE?
 FLEISCHW0LF/FLEISCHW0LF is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+</p>
