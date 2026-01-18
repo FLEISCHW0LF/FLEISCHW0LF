@@ -10,11 +10,16 @@
   
 <code style="color : red">⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? .• ࣪ :🗡་࿐</code>
 
- ☆ My ears are ringing with a sound
+ <p align="center"
+   
+<code style="color : red"> ☆ My ears are ringing with a sound</code>
+
+  <p align="center"
+    
+<code style="color : red"> ☆ Feel the vibrations, my heart starts to <b>POUND POUND POUND !<b> </code>
+
 
  
- ☆ Feel the vibrations, my heart starts to pound, pound, pound
-
  
  ☆ Give in to darkness, bodies melt
 
