@@ -4,11 +4,11 @@
 
 <p align="center"
  
-⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? 
+⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐
 
  <p align="center"
   
-⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? 
+⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? .• ࣪ :🗡་࿐
 
  ☆ My ears are ringing with a sound
 
