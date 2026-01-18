@@ -1,3 +1,7 @@
+HAVE YOU EVER SLASHED A SOUL TO RIBBONS? 
+HAVE YOU EVER BELIEVED IN A MIRAGE? 
+
+
  ☆ My ears are ringing with a sound
 
  
