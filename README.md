@@ -19,8 +19,15 @@
 <code style="color : red"> ☆ Feel the vibrations, my heart starts to <b>POUND POUND POUND !<b> </code>
 
 <p align="center"
+
   
 <img src="https://file.garden/aW0e-ZgoXg_NmNlf/ae6e4ecb2aa2ac8282f38c426723f64c.gif">  
+
+
+
+
+
+
  
  ☆ Give in to darkness, bodies melt
 
