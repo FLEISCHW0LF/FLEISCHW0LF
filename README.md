@@ -5,11 +5,10 @@
 <p align="center"
 
 <code style="color : red">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</code>
- <p style="color:red;">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</p>
 
  <p align="center"
   
-⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? .• ࣪ :🗡་࿐
+<code style="color : red">⋆｡°✩ HAVE YOU EVER BELIEVED IN A MIRAGE? .• ࣪ :🗡་࿐</code>
 
  ☆ My ears are ringing with a sound
 
