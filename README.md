@@ -1,5 +1,11 @@
-- gay gay homosexual gay
-- 99% of the time i sit with my brother :) check him out https://github.com/spiralcord
+ ☆ My ears are ringing with a sound
+ ☆ Feel the vibrations, my heart starts to pound, pound, pound
+ ☆ Give in to darkness, bodies melt
+ ☆ How do we play the cards we've been dealt, dealt, dealt?
+ ☆ Beauty, it's humanity's greatest sin
+ ☆ Beauty, hidin' the beast that lies within! 
+⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆
+
 
 <!---
 FLEISCHW0LF/FLEISCHW0LF is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
