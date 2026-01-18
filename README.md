@@ -4,7 +4,7 @@
 
 <p align="center"
 
-<code style="color : name_color">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</code>
+<code style="color : red">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</code>
  <p style="color:red;">⋆｡°✩ HAVE YOU EVER SLASHED A SOUL TO RIBBONS? .• ࣪ :🗡་࿐</p>
 
  <p align="center"
