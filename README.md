@@ -1,9 +1,20 @@
  ☆ My ears are ringing with a sound
+
+ 
  ☆ Feel the vibrations, my heart starts to pound, pound, pound
+
+ 
  ☆ Give in to darkness, bodies melt
+
+ 
  ☆ How do we play the cards we've been dealt, dealt, dealt?
+
+ 
  ☆ Beauty, it's humanity's greatest sin
+
+ 
  ☆ Beauty, hidin' the beast that lies within! 
+ 
 ⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆⋆༺𓆩🗡𓆪༻⋆
 
 
